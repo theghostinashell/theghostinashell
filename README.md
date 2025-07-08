@@ -1,4 +1,4 @@
-# 💗 About Me:
+
 # 🌸 I'm Norah ;p 🌸
 
 
