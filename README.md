@@ -1,5 +1,5 @@
 
-# 🌸 I'm Norah ;p 🌸
+
 
 
 # 💻 Tech Stack:
